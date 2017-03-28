@@ -10,6 +10,11 @@ Downtown San Diego
   - Room 152 (18 people) - $270 for 8 hours (commercial)
   - Room 151 & 152 combined (46 people) - $480 for 8 hours (commercial)
 
+La Jolla
+- https://www.irvinecompanyoffice.com/view/san-diego-3/university-towne-centre-3/la-jolla-center-146
+   - Behind the Marriott and kitty-corner from UTC, $40 room rental and $75/hr
+     for HVAC
+
 Elsewhere in the City of San Diego
 - https://www.sandiego.gov/public-library/services/specialresources/meeting/meetavl
 - https://www.sandiego.gov/park-and-recreation/centers/recctr
