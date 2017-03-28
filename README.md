@@ -12,6 +12,7 @@ Downtown San Diego
 
 Elsewhere in the City of San Diego
 - https://www.sandiego.gov/public-library/services/specialresources/meeting/meetavl
+- https://www.sandiego.gov/park-and-recreation/centers/recctr
 
 North County
 - Carlsbad Public Library (1775 Dove Lane)
